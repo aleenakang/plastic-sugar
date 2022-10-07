@@ -13,5 +13,5 @@
 
 3. 🐌 ⋆ 🐚  🎀  𝓂𝒶𝓀𝒾𝓃 𝓂𝓎 𝓌𝒶𝓎 𝒹♡𝓌𝓃 𝓉💮𝓌𝓃  🎀  🐚 ⋆ 🐌
 
-![Image](b2eb7cc341f127b5f8d611be4d7168f2dbfaa8dcr1-480-360v2_hq.jpg)
+![Image](https://steamuserimages-a.akamaihd.net/ugc/958604921954553724/0724E67F9F170A5F3023193166E48CB5D316BC0B/?imw=637&imh=358&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true)
 
